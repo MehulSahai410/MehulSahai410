@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mehulsahai.041005@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1n-GA_KCdPcYYyOMhrG67ABkp3AfRGoub/edit?usp=sharing&ouid=107021837262244560191&rtpof=true&sd=true](https://docs.google.com/document/d/1n-GA_KCdPcYYyOMhrG67ABkp3AfRGoub/edit?usp=sharing&ouid=107021837262244560191&rtpof=true&sd=true)
+- 📄 Know about my experiences https://docs.google.com/document/d/1NQN2JWz5hTYMw9xAqHlTrg2U-OzKbN5rACSUl48c2Gg/edit?usp=sharing
 
 - ⚡ Fun fact **I like to watch sports and enjoy playing video games**
 
